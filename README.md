@@ -1,3 +1,1 @@
-# Task_1
-
-entandii ippudu kadhuu...!!!
+Naak intrest poyindi davdalodi
